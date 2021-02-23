@@ -1,1 +1,0 @@
-# oulica_termsofservice.github.io-settings
